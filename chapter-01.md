@@ -1,6 +1,6 @@
 **Chapter 1: The Main Course**
 ---
->The incense in the cathedral smelled like expensive cedar and old money, but beneath the thick smoke billowing from the incense burners, Yeongon could smell the decay as she looked around slightly through white lace at the crowd in the pews.
+>>The incense in the cathedral smelled like expensive cedar and old money, but beneath the thick smoke billowing from the incense burners, Yeongon could smell the decay as she looked around slightly through white lace at the crowd in the pews.
 
 
 “If there is anyone here who has anything to say about this union, speak now or forever hold your peace.” The clergyman paused, his gaze sweeping the vaulted ceiling, the stained-glass saints, and finally, the hundreds of faces packed into the mahogany pews. He was stalling and it was painfully obvious by tugging repeatedly on his collar to let beads of sweat hide beneath. The entire congregation, or something along those lines. Was more like a curated menagerie of board members, hedge fund managers, and society heirs and heiresses. All sitting in a collective, suffocating silence. Only a dry, wet cough from a child in the third row cut through the tension.
