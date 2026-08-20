@@ -84,3 +84,5 @@ Yeongon took his glass from his hand and set it aside, leaning in until her veil
 
 Arthur nodded slowly, his heart rate spiking against his ribs as a cold, unfamiliar dread settled in the pit of his stomach. He suddenly felt very small, and very, very old.  As the Maybach pulled away from the curb and headed toward the private tarmac, Yeongon rested her head and began to mentally map the blueprints of the Hawaiian estate where the dissection of Arthur Woo would begin.
 
+
+![Chapter 1 Art](chapter1-foot.jpg)
