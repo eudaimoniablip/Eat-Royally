@@ -53,17 +53,21 @@ Instead, the waveform rendered on his screen, and Elias stopped breathing. He st
 
 
 He ran a Fast Fourier Transform (FFT) on the audio clip to decompose the sound into its constituent frequencies:
+
+
 ![Chapter 3 Art](chapter3-eq.jpg)
 
 
 The output was utterly flawless, and biologically terrifying.
 
 
-Audio Signature 1: A clean, sustained sine wave hovering near 698 Hz, originating directly from a human larynx.
-Audio Signature 2: A simultaneous, rapidly fluctuating 12-Hertz acoustic flutter.
+_Audio Signature 1: A clean, sustained sine wave hovering near 698 Hz, originating directly from a human larynx.
+Audio Signature 2: A simultaneous, rapidly fluctuating 12-Hertz acoustic flutter._
 
 
 Elias highlighted the intersection of the waves. The conflict was undeniable. Both sound waves shared the exact, identical point of physical origin. To achieve this kind of dual-tone frequency modulation, the acoustic physics would require an equation resembling:
+
+
 ![Chapter 3 Art](chapter3-eq1.jpg)
 
 
