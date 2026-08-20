@@ -92,3 +92,6 @@ Elias reached over to his weatherproof laptop, his broad shoulders shifting bene
 
 
 “I don't care what she is, Jin. Everything has a structural weakness. You just have to watch long enough to find the beginning of the fracture.” Elias cut the comms. He watched through the scope as Yeongon finally moved, gliding smoothly out of frame toward the master suite. He didn't know it yet, but he was attempting to reverse-engineer a creature that had been perfecting the art of the kill for five hundred years.
+
+
+![Chapter 2 Art](chapter2-foot.jpg)
