@@ -28,7 +28,7 @@ It was an architecture of absolute, suffocating control. There were no golden cl
 
 
 Every desperate prayer from a starving farmer, every ounce of grief from a war-torn continent, was systematically siphoned upward. The grief was processed, refined, and fed into the load-bearing pillars of the celestial city to fuel the immortality of the Jade Emperor and his bloated, parasitic court. The gods were nothing more than apex executives, hoarding the spiritual capital of the universe while the dirt-dwellers below bled to keep the machinery humming.
-She hadn't fallen because of a sin of passion; she had fallen because she possessed the critical thinking to see the rot in their ‘perfect’ geometry.
+She hadn't fallen because of a sin of passion; she had fallen because she possessed the critical thinking to see the rot in their ‘perfect’ system.
 
 
 ​Before the deal and before the human suits, she had been a Yeongno—a scaled, apex entity of the upper atmosphere, a proto-dragon waiting for the final pearl of ascension. But ascension, she had discovered, was a rigged equation. She felt the tinge in her hearts back then, when the Celestial Court themselves acted as these pedestaled humans amassing their power and wealth, remembered the bitter taste in her mouth as she dreamed of consuming them and making a just and right celestial realm.
