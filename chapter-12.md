@@ -14,7 +14,7 @@ Jin’s jaw tightened. "Thank you."
 
 He walked down the silent, heavily carpeted hallway. The heavy acoustic doors to the CEO’s suite were open. Yeongon sat behind the massive slab of polished mahogany that used to belong to his grandfather. The human suit was holding flawlessly. She wore a tailored, charcoal-grey blazer over a high-collared silk blouse, her dark hair pulled back into a severe, architectural knot. She was typing on a holographic terminal, her pale, flawless fingers flying across the keys with an unnatural, blurring speed that no human tendon could sustain.
 
-
+![Chapter 12 Art](chapter12-foot.jpg)
 She didn't look up as Jin entered. "Close the door, Jin." Jin closed the heavy door and silence in the room became absolute, a localized vacuum.
 
 
