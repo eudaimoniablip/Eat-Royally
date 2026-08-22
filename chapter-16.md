@@ -1,4 +1,4 @@
-**Chapter 16: Prix Fixe **
+**Chapter 16: Prix Fixe**
 ---
 The Woo Telecom Tower was a seventy-story monument to corporate hubris, wrapped in reinforced glass and steel. At 11:00 PM, it went entirely dark. High in the penthouse vault, Jin Woo initiated the Blackout Protocol. Heavy, interlocking titanium blast shutters slammed down over the floor-to-ceiling windows with the deafening, final clang of a bank vault sealing shut. The elevators are magnetically locked at the ground floor. The air filtration system shifted to a closed-loop internal supply, the room instantly tasting of recycled ozone and stale copper.
 
