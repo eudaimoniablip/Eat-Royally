@@ -45,3 +45,4 @@ International Sieger Rolo aus dem Drachenhort, Son of the Midnight Sovereign, Gr
 
 
 attachment.001.jpg>>
+![GBGTDH Art](goodboysguidetodragonhunting-foot.jpg)
