@@ -89,3 +89,4 @@ Up in the vault, Jin Woo looked at the flashing green button on his console that
 
 Now, he had sixty seconds to decide if the money was a fortress, or a tomb.
 
+![Chapter 16 Art](chapter16-foot.jpg)
