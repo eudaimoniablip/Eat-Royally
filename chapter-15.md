@@ -106,6 +106,7 @@ Elias forced himself up to his knees, his muscles screaming in protest as the gr
 
 Elias looked at Shin, who finally peeled himself out of the wall, adjusted his silk tie, and stepped into a spatial fold, vanishing from the tunnel entirely.
 
-![Chapter 15 Art](chapter15-foot.jpg)
+
 "Negative, Jin," Elias rasped, spitting a mouthful of blood onto the frost-covered concrete. "She leveled up. And the Firmament's cleaner is right behind her. You're out of meat shields. Mama, I’m comin' home."
 
+![Chapter 15 Art](chapter15-foot.jpg)
