@@ -94,3 +94,5 @@ Behind the glass, Jin’s posture fundamentally shifted and he leaned in closer.
 
 
 "That’s my boy!," Elias agreed, a dark, predatory satisfaction settling over his sharp features as he looked down at the dog. "We aren't going to try and slap these on her in a dark alleyway like amateurs. We are going to shoot the cage directly onto her chest."
+
+![Chapter 11 Art](chapter11-foot.jpg)
