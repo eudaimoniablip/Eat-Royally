@@ -114,4 +114,4 @@ Jin sat on the curb, his face covered in gray ash. He was looking at the collaps
 
 "No," Elias said. He sheathed his combat knife with a sharp click and reached down to give Rolo a heavy, well-earned ear scratch. He pulled a crushed, synthetic cinnabar seal out of his pocket and tossed it casually into the gutter. "She didn't want to join their club, Jin. She just wanted to tear down the building."
 
-
+![Chapter 17 Art](chapter17-foot.jpg)
