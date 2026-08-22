@@ -1,4 +1,4 @@
-**Notice: Eat Royally is a dark urban fantasy novel intended for mature audiences. It contains explicit elements and mature themes, including:
+!!! Notice: Eat Royally is a dark urban fantasy novel intended for mature audiences. It contains explicit elements and mature themes, including:
 
 Intense Violence & Gore: Graphic depictions of supernatural combat, structural destruction, and visceral creature transformations.
 
@@ -8,7 +8,7 @@ Substances & Corporate Vice: Depictions of pharmaceutical exploitation, high-lev
 
 Dark Psychological Themes: Isolation, existential dread, forced audits, and psychological manipulation.
 
-Reader discretion is advised.**
+Reader discretion is advised.!!!
 
 
 _**Billionaires believe their offshore accounts make them untouchable gods. Yeongon is here to aggressively audit their theology. "Eat the rich" isn't just a catchy political slogan; for a fallen celestial proto-dragon, it is her drive.**_
