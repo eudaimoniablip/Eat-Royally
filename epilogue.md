@@ -88,3 +88,5 @@ She leaned forward, resting her pale, cool hands on the obsidian table. She open
 
 
 The reinforced glass of the penthouse cracked. Let the hunt begin, yet again.
+
+![Epilogue Art](epilogue-foot.jpg)
