@@ -135,3 +135,5 @@ She bleeds, Elias realized, his tactical mind rapidly calculating the new data. 
 
 
 "The trap works, Jin," Elias replied, ejecting a 40mm organic cinnabar round from his launcher and catching it in his hand. "But the board just changed. We don't just have a dragon to hunt anymore. We have a celestial cleaner to make friends with."
+
+![Chapter 13 Art](chapter13-foot.jpg)
