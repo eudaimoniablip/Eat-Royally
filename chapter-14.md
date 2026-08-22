@@ -92,3 +92,5 @@ The psychoacoustic frequency was so dense, so heavy with ancient gravity, that i
 
 
 The final harvest was ready.
+
+![Chapter 14 Art](chapter14-foot.jpg)
