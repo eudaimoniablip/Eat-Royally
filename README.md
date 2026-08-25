@@ -6,7 +6,7 @@ Language: Frequent coarse, vulgar, and aggressive profanity.
 
 Substances & Corporate Vice: Depictions of pharmaceutical exploitation, high-level corporate corruption, and systemic greed.
 
-Dark Psychological Themes: Isolation, existential dread, forced audits, and psychological manipulation.
+Dark Psychological Themes: Isolation, suicide, existential dread, forced audits, and psychological manipulation.
 
 Reader discretion is advised.!!!
 
