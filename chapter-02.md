@@ -60,7 +60,7 @@ Every goblet of celestial gases they consumed and got drunk on their unchallenge
 ​She traced a finger along her collarbone, right over the heavy tungsten clasp. Beneath the fabric, her pale skin was smooth, but deep in her real body, she could feel the phantom itch of the ninety-nine scales she had spent centuries consuming for. Just one more scale and she will finish the vow that she made. If they thought rigging the game would disway her over time, she would stand fast in her promise and show them their misstep.
 
 
-​She turned away from the window, her lips parting slightly to release a low, liting three-note whistle “Fffff... Ddddd... Aaaaa…” letting the buzzing, reedy vibration echo off the teak walls to signal the beginning of Arthur’s end.
+​She turned away from the window, her lips parting slightly to release that low, liting three-note whistle. Letting the buzzing, reedy vibration echo off the warm teak walls to signal the beginning of Arthur’s end.
 
 
 Two miles away, positioned on a jagged volcanic ridge overlooking the estate, Elias Thorne adjusted the focal ring on his spotting scope. He was a study in severe, functional research. Dressed in black tactical weather gear that absorbed the ambient Maui moonlight, Elias possessed the lean, coiled musculature of a man who spent his life in hostile environments. His face was all sharp, angular lines, shadowed by a dark espresso beard and  his pale blue eyes were terrifyingly clear, holding the cold, detached, absolute focus of a well-made machine.
