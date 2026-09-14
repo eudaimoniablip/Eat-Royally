@@ -43,6 +43,7 @@ Yours in eternal vigilance,
 
 International Sieger Rolo aus dem Drachenhort, Son of the Midnight Sovereign, Grandson of the Carpathian King.
 
+Here's a song me and the pack sung around the ol sleep pits during sleepless nights. https://suno.com/s/IxZz7t8jALkQV120
 
 attachment.001.jpg>>
 ![GBGTDH Art](goodboysguidetodragonhunting-foot.jpg)
