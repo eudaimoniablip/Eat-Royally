@@ -38,12 +38,18 @@ She remembered the celestial court not as a paradise, but as a rigid, oppressive
 
 
 It was an architecture of absolute, suffocating control, there were no golden clouds or benevolent light. The upper realm was a brutalist labyrinth of towering obsidian monoliths and endless, barely lit archives that stretched into a lightless horizon. Everything was mathematically perfect and entirely devoid of life. The air didn't smell of lotus flowers or even earth or water.  Instead it tasted of cold brass and the faint, bitter scent of burning energy. That churning energy was the harvest and the final result of the court. The celestial nobility did not rule the mortal realm; they farmed it.
-Every desperate prayer from a starving farmer, every ounce of grief from a war-torn continent is systematically siphoned upward. The grief was processed, refined, and fed into the load-bearing pillars of the celestial city to fuel the immortality of the Jade Emperor and her bloated, parasitic court. The gods were nothing more than apex executives, hoarding the spiritual capital of the universe while the dirt-dwellers below bled to keep the court running at peak efficiency.
-She hadn't fallen because of a sin of passion, she had fallen because she possessed the awareness to see the rot in their ‘perfect’ elevated pillars.
+
+
+Every desperate prayer from a starving farmer, every ounce of grief from a war-torn continent is systematically siphoned upward. The grief was processed, refined, and fed into the load-bearing pillars of the celestial city to fuel the immortality of the Jade Emperor and her bloated, parasitic court. The gods were nothing more than apex executives, hoarding the spiritual capital of the universe while the dirt-dwellers below bled to keep the court running at peak efficiency. She hadn't fallen because of a sin of passion, she had fallen because she possessed the awareness to see the rot in their ‘perfect’ elevated pillars.
 ​Before the deal,  before the human cosplay, she wore her own skin as a Yeongno. The scaled, apex entity of the upper atmosphere, a proto-dragon waiting for the final pearl of ascension. 
+
 But ascension, she had discovered, was a rigged equation. She felt the tinge in her hearts back then, when the Celestial Court themselves acted as if they were reborn pedestaled humans amassing their own power and wealth, remembered the bitter taste in her mouth as she dreamed of consuming them and making a celestial realm that was originally intended.
 Every goblet of celestial gases they consumed and got drunk on their unchallenged power, every creature they tortured to glean its usefulness to the court, a black stain smearing across their extractivistic forms in her eyes. 
+
+
 ​During one Great Banquet, she had refused to bow to the Jade Empress, calling out their corruption and it was not received well. They didn’t just banish her; They flayed her with their claws and gnashed through her luminescent, copper and black swirling scales with their mobbed barrage of perfidious slashes. She squeezed her eyes a moment shut as she remembered the blinding agony as one of the celestial guards ripped the remaining of her one hundred iridescent scales from her spine. She swore each of them a gift of a slow agonizing death by her hands for this treachery. With every scale removed, her mass collapsed, condensing until she was hurled from the sky, crashing into the mud of Joseon-era Korea as a twisted, starving shadow.
+
+
 ​“If you despise the hierarchy so much,” the Emperor’s voice thundered as she plummeted towards the Earth, “then consume it. Eat one hundred of the mortal realm’s most corrupt aristocrats for each of your scales as a reward. Prove that the scales can be balanced. Only then will your own scales balance.” The voice and subsequent laughter merged with the thunderstorm that followed her fall. The squelching sound of her hitting the ground had her blink to bring her back to the present.
 
 
@@ -78,9 +84,7 @@ Through the thermal and high-magnification lens, he watched Yeongon standing in 
 “And her?” Jin followed.
 
 
-“Nothing,” Elias whispered, a cold chill prickling the back of his neck despite the tropical heat. “Get this, she just stood there for just about four minutes looking at the sky. No weight shift or any involuntary muscle spasms. She doesn't move like a woman who just secured a multi-billion dollar bag. She moves like a predator that’s been put in a holding pattern.”
-Elias reached over to his weatherproof laptop, his broad shoulders shifting beneath the dark tactical fabric as he pulled up the architectural blueprints of the estate that Jin had forwarded him. He overlaid it with the security camera blind spots.
-“I’m moving closer tonight,” Elias said, his voice dropping an octave into a low, gravelly hum. “I need more sensors on the glass. If she’s running a psychological operation on him, I need to hear the methodology.”
+“Nothing,” Elias whispered, a cold chill prickling the back of his neck despite the tropical heat. “Get this, she just stood there for just about four minutes looking at the sky. No weight shift or any involuntary muscle spasms. She doesn't move like a woman who just secured a multi-billion dollar bag. She moves like a predator that’s been put in a holding pattern.” Elias reached over to his weatherproof laptop, his broad shoulders shifting beneath the dark tactical fabric as he pulled up the architectural blueprints of the estate that Jin had forwarded him. He overlaid it with the security camera blind spots. “I’m moving closer tonight,” Elias said, his voice dropping an octave into a low, gravelly hum. “I need more sensors on the glass. If she’s running a psychological operation on him, I need to hear the methodology.”
 
 
 “Don't get caught, Thorne. If she is what I think she is, you aren't dealing with a gold digger,” Jin warned, his elite calm and smooth voice fracturing slightly.
