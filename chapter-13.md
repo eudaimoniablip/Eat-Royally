@@ -27,10 +27,7 @@ Directly above Jin’s monitors, hanging upside down from the ceiling tiles, was
 “Grrrrrrrr.” Elias froze. Rolo hadn't barked, but the dog’s hackles suddenly stood straight up, forming a sharp, rigid ridge of fur straight down his spine. The Doberman’s upper lip curled back, emitting a concussive vibration so low Elias actually felt it hum in his own cracked ribs. Rolo’s wet nose was pointed squarely at the floor grates leading down to the VIP lounge.
 
 
-The biological radar had tripped. Digital thermals could be spoofed, but the chemical shift of an apex predator dropping its temperature could not hide from a canine’s sensitive olfactory bulb.
-
-
-"She's in the lounge," Elias took three steady box-breaths and said, his heart rate steadying into an icy, analytical calm. His calloused fingers flew across the tablet. "Initiating."
+The biological radar had tripped. Digital thermals could be spoofed, but the chemical shift of an apex predator dropping its temperature could not hide from a canine’s sensitive olfactory bulb. "She's in the lounge," Elias took three steady box-breaths and said, his heart rate steadying into an icy, analytical calm. His calloused fingers flew across the tablet. "Initiating."
 
 
 Down in the VIP lounge, the heavy acoustic doors slid shut, sealing Chairman Bae inside. A moment later, Yeongon stepped out from the deep shadows of the coat check.
@@ -39,10 +36,7 @@ Down in the VIP lounge, the heavy acoustic doors slid shut, sealing Chairman Bae
 She wore a floor-length, structural gown of absolute black—a color that didn't just lack light, but seemed to actively absorb the ambient glow of the room. The gown was heavily corseted, locked shut across her ribs by thick, industrial tungsten clasps that mirrored her everyday coat.
 
 
-She glided toward Chairman Bae, her pale jaw unhinging just a fraction of an inch to release the psychoacoustic three-note whistle.
-
-
-Before the first note left her lips, Elias hit the override.
+She glided toward Chairman Bae, her pale jaw unhinging just a fraction of an inch to release the psychoacoustic three-note whistle.But before the first note left her lips, Elias hit the override.
 
 
 He didn't attack her with acoustics or synthetic seals this time. He targeted the infrastructure. He slammed the environmental blast doors shut, hermetically sealing the VIP lounge, and instantly cranked the localized ambient heating coils to maximum industrial capacity.
@@ -51,20 +45,13 @@ He didn't attack her with acoustics or synthetic seals this time. He targeted th
 Within ten seconds, the temperature in the lounge violently spiked to 115 degrees Fahrenheit. Within twenty seconds, it hit 130.
 
 
-Down in the lounge, Chairman Bae gasped, frantically loosening his silk tie as the oppressive, suffocating heat hit him like a physical, suffocating wall.
-But for Yeongon, it was catastrophic.
+Down in the lounge, Chairman Bae gasped, frantically loosening his silk tie as the oppressive, suffocating heat hit him like a physical, suffocating wall. For Yeongon, it was catastrophic.
 
 
-Her human suit was a high-pressure containment vessel. It relied entirely on ambient cooling to manage the immense, burning celestial energy of fifty-one compressed human souls. As the room became a localized blast furnace, the suit lost its thermodynamic ability to regulate.
+Her human suit relied entirely on ambient cooling to manage the immense, burning celestial energy of fifty-one compressed human souls. As the room became a localized blast furnace, the suit lost its ability to stabilize. Yeongon stopped dead in her tracks. A sharp, shockingly human gasp of pain escaped her pale lips. She staggered backward, her hip hitting the edge of an obsidian coffee table. The heavy tungsten clasps on her gown began to hiss violently, the metal visibly warping and bending outward under the rapidly expanding heat of the celestial mass beneath her skin. She grabbed it to try and help it hold with her hands but her hands just glowed from beneath.
 
 
-Yeongon stopped dead in her tracks. A sharp, shockingly human gasp of pain escaped her pale lips. She staggered backward, her hip hitting the edge of an obsidian coffee table. The heavy tungsten clasps on her gown began to hiss violently, the metal visibly warping and bending outward under the rapidly expanding heat of the celestial mass beneath her skin. She grabbed it to try and help it hold with her hands but her hands just glowed from beneath.
-
-
-"Her thermal limit is breaking," Elias noted, watching his monitors as the temperature gauge climbed past 140 degrees. "The suit is failing."
-
-
-But before Elias could pick up his 40mm launcher to deliver the organic seal, the security feed abruptly distorted. The heavy, magnetically locked steel doors of the VIP lounge didn't open. They stretched. The steel frame bent inward like pulled taffy, the atomic structure of the door simply folding out of the way.
+"Her thermal limit is breaking," Elias noted, watching his monitors as the temperature gauge climbed past 140 degrees. "The suit is failing." He reported but before Elias could pick up his 40mm launcher to deliver the organic seal, the security feed abruptly distorted. The heavy, magnetically locked steel doors of the VIP lounge didn't open. They stretched. The steel frame bent inward like pulled taffy, the atomic structure of the door simply folding out of the way.
 
 
 A man in a perfectly tailored charcoal suit stepped into the 140-degree room.
@@ -73,11 +60,10 @@ A man in a perfectly tailored charcoal suit stepped into the 140-degree room.
 Up in Seoul, Bunnie, hanging over Jin’s monitors, let out a sharp, violent hiss of pure static, scurrying backward across the ceiling and hiding in the shadows that flickered about. "Elias," Jin said, his voice entirely losing its sociopathic cool. "Who the hell is that?"
 
 
-"I don't know," Elias grunted, gripping his launcher.
+"I don't know," Elias grunted, gripping his launcher. "You think it's the cleaner that Bora warned me about?" Gritting his teeth as he squared up the launcher just in case.
 
 
-Kiyo Shin didn't acknowledge the blistering heat, he simply looked at Yeongon. He reached into his pocket, pulled out an analog silver pocket watch, and clicked it open.
-A localized spatial compression directly onto Yeongon. Down below, the physical toll on the her was horrifying. Trapped between Elias’s thermodynamic overload expanding her mass, and Shin’s spatial gravity crushing her inward, Yeongon fell heavily to one knee cracking the floor beneath. Along her spine, the flawless human skin blistered and split open with a sickening, wet crack. A jagged line of heavy, iridescent copper and obsidian scales erupted through the ruined flesh, radiating intense waves of visible heat distortion.
+Kiyo Shin didn't acknowledge the blistering heat, he simply looked at Yeongon. He reached into his pocket, pulled out an analog silver pocket watch, and clicked it open. A localized spatial compression directly onto Yeongon. Down below, the physical toll on the her was horrifying. Trapped between Elias’s thermodynamic overload expanding her mass, and Shin’s spatial gravity crushing her inward, Yeongon fell heavily to one knee cracking the floor beneath. Along her spine, the flawless human skin blistered and split open with a sickening, wet crack. A jagged line of heavy, iridescent copper and obsidian scales erupted through the ruined flesh, radiating intense waves of visible heat distortion.
 
 
 Chairman Bae, terrified by the suffocating heat and the mutating, bleeding woman on the floor, scrambled backward against the floor-to-ceiling glass. "What... what are you?!" he choked out, his mind fracturing as the dragon began to violently tear its way out of the tailored gown.
@@ -89,19 +75,13 @@ Shin took a single, calm step forward,  through the spatial glitch and instantly
 Yeongon looked up, her dark eyes entirely swallowed by an oil-slick black void. She was pinned by the heat and crushed by the gravity, unable to unhinge her jaw or exert the psychological control she needed to extract Bae's soul cleanly.
 
 
-But she was an apex predator, and predators adapt. If I cannot survive the environment, she thought, her lightless eyes locking onto the structural foundation of the room, I will collapse it.
-
-
-Still on one knee, Yeongon slammed her pale, bloodied hand directly into the floor, spraying her black oily blood into the cracks in the floor. She channeled the violent, expanding kinetic fury of her overheating form away from her body and drove it straight into the architectural load-bearing beams holding the cantilevered pavilion over the ocean.
+But she was an apex predator, and predators adapt. If I cannot survive the environment, she thought, her lightless eyes locking onto the structural foundation of the room, I will collapse it. Still on one knee, Yeongon slammed her pale, bloodied hand directly into the floor, spraying her black oily blood into the cracks in the floor. She channeled the violent, expanding kinetic fury of her overheating form away from her body and drove it straight into the architectural load-bearing beams holding the cantilevered pavilion over the ocean.
 
 
 _CRACK._
 
 
-The acoustic dampening of the room violently inverted. The massive steel I-beams groaned under the impossible celestial weight. The reinforced glass wall behind Chairman Bae didn't just shatter; it exploded outward into the raging storm.
-
-
-The gale-force winds of the Pacific typhoon howled into the 140-degree room, instantly violently crashing against the heat, creating a deafening, sensory-crushing vacuum of steam and rain.
+The acoustic dampening of the room violently inverted. The massive steel I-beams groaned under the impossible celestial weight. The reinforced glass wall behind Chairman Bae didn't just shatter; it exploded outward into the raging storm. The gale-force winds of the Pacific typhoon howled into the 140-degree room, instantly violently crashing against the heat, creating a deafening, sensory-crushing vacuum of steam and rain.
 
 
 Chairman Bae screamed, clutching his ears as the sudden, violent atmospheric pressure drop ruptured both of his eardrums and blood now framed the sides of his neck. The sheer terror of the storm, combined with the crushing, psychic weight radiating from the two gods clashing in front of him, broke his ego instantly. He fell to his knees in the rain-slicked lounge, weeping, his mind collapsing under the weight of the thousands of lives he had locked in dark, suffocating shipping containers.
@@ -134,6 +114,6 @@ She bleeds, Elias realized, his tactical mind rapidly calculating the new data. 
 "Elias," Jin’s voice crackled over the comms, stripped of all its corporate arrogance. "What is our operational status?"
 
 
-"The trap works, Jin," Elias replied, ejecting a 40mm organic cinnabar round from his launcher and catching it in his hand. "But the board just changed. We don't just have a dragon to hunt anymore. We have a celestial cleaner to make friends with."
+"The trap works, Jin," Elias replied, ejecting a 40mm organic cinnabar round from his launcher and catching it in his hand. "But the board just changed. We don't just have a dragon to hunt anymore. We have a celestial cleaner to deal with."
 
 ![Chapter 13 Art](chapter13-foot.jpg)
