@@ -70,22 +70,16 @@ The human suit was barely holding.
 She had shed the tailored corporate blazers. She wore only a thin, black silk shift and the heavy, structural corsetry of the tungsten clasps. But even the metal was failing. The clasps were glowing a dull, angry orange, visibly warping and groaning under the impossible hydrostatic pressure of the seventy-five corrupted souls boiling beneath her skin.
 
 
-Her pale skin was no longer flawless. It was a terrifying map of jagged, glowing fault lines. Beneath the deep fissures running up her neck and down her forearms, thick, iridescent obsidian scales shifted and ground against each other like tectonic plates. The ambient heat radiating off her celestial core was immense; despite the room being twenty degrees, the frost on the concrete walls immediately surrounding her was flash-melting into boiling steam.
+Her pale skin was no longer flawless. It was a terrifying map of jagged, glowing fault lines. Beneath the deep fissures running up her neck and down her forearms, thick, iridescent copper-obsidian scales shifted and ground against each other like tectonic plates. The ambient heat radiating off her celestial core was immense; despite the room being twenty degrees, the frost on the concrete walls immediately surrounding her was flash-melting into boiling steam.
 
 
-Seventy-five souls were a crushing, agonizing, toxic weight. But twenty-four more would push her over the threshold. It would trigger the final biological evolution required to process the mass and face the architect of the vault: Jin Woo.
-
-
-She closed her lightless, bottomless eyes, feeling the heavy, rhythmic vibration of the private helicopters landing on the reinforced pad above.
+Seventy-five souls were a crushing, agonizing, toxic weight. But twenty-four more would push her over the threshold. It would trigger the final biological evolution required to process the mass and face the architect of the vault: Jin Woo. She closed her lightless, bottomless eyes, feeling the heavy, rhythmic vibration of the private helicopters landing on the reinforced pad above.
 
 
 The prey had arrived.
 
 
 She inhaled the freezing air, the oxygen hissing violently as it hit her superheated lungs. She unhinged her jaw—the flawless skin of her cheeks splitting seamlessly up to her cheekbones to reveal rows of translucent, razor-sharp teeth—and began to warm up the internal acoustic flutter of her vocal cords.
-
-
-_Fffff... Ddddd... Aaaaa..._
 
 
 The psychoacoustic frequency was so dense, so heavy with ancient gravity, that it caused the concrete dust on the freezing floor to levitate, swirling into the air like a localized, anti-gravity storm.
