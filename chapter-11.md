@@ -13,11 +13,15 @@ He leaned against the metal workbench, his eyes narrowing as he watched the robo
 
 
 Jin Woo stood on the other side of the sterile glass partition, arms crossed. His immaculate, bespoke Italian suit was a stark contrast to the industrial machinery and Elias’s grease-stained tactical gear. Jin checked his platinum watch, his jaw muscle ticking as his patience wore dangerously thin.
-"You are running organic earth compounds through a forty-million-dollar microchip fabricator, Elias," Jin’s voice piped through the intercom, sharp and clipped. "You’ve voided the warranty, ruined the extrusion matrix, and you’re painting yellow paper red. Tell me this isn't just expensive arts and crafts. Also why are you standing over it and glaring in it like that? You can get a much better view from the extruder monitor." Jin scoffed.
+
+
+"You are running organic earth compounds through a forty-million-dollar microchip fabricator, Elias," Jin’s voice piped through the intercom, sharp and clipped. "You’ve voided the warranty, ruined the extrusion matrix, and you’re painting yellow paper red. Tell me this isn't just expensive arts and crafts. Also why are you standing over it and glaring in it like that? You can get a much better view from the extruder monitor." Jin scoffed incredulously.
+
+
 "It’s structural engineering, Jin," Elias replied, his voice a low, gravelly hum, his eyes never leaving the robotic arm as it laid down a flawless ninety-degree angle in the script. "Think of her expanding celestial mass like a highly pressurized gas. If you want to trap a volatile gas, you don't use a cardboard box. You use a heavy steel tank. The organic cinnabar—the blood of the earth—is the steel. It's the only material on this planet dense enough to hold her weight."
 
 
-Elias pointed a calloused, scarred finger at the complex, intersecting red lines currently being printed on the polymer backing. "But the geometry? The exact shape of those lines?" Elias continued, tapping the reinforced glass. "That’s the welding holding the steel together. If a human hand shakes while painting this, if the brush drags a millimeter too far, the geometry is flawed. The weld breaks, the pressure escapes, and the cage violently shatters. I’m not playing with arts and crafts. I am using a multi-axis robotic extruder to lay down the script with microscopic structural perfection. We are industrializing the seal."
+Elias pointed a calloused, scarred finger at the complex, intersecting red lines currently being printed on the polymer backing. "But the geometry? The exact shape of those lines?" Elias continued, tapping the glass shield of the machine's cap. "That’s the welding holding the steel together. If a human hand shakes while painting this, if the brush drags a millimeter too far, the geometry is flawed. The weld breaks, the pressure escapes, and the cage violently shatters. I’m not playing house here. I am using a multi-axis robotic extruder to lay down the script with microscopic structural perfection. We are industrializing the seal."
 
 
 Jin snorts. “And you just tap on the glass like a kid at a dentist office terrorizing the fish.”
@@ -32,7 +36,7 @@ Elias popped the tray open and peeled the finished talisman off the metal plate.
 "Great," Jin deadpanned over the intercom, his voice dripping with dry, corporate sarcasm. "You printed a sticker. It’s mathematically perfect. How do we know it actually works before she rips my spine out of my back?"
 
 
-Elias didn't answer immediately. Staring at the blood-red ink, his analytical mind slipped backward, dropping him into a memory he usually kept tightly compartmentalized. It was four years ago, during a localized blackout raid in a freezing Chechen warehouse. Elias had been hunting a rogue arms dealer. He had relied entirely on millions of dollars of state-of-the-art tech: panoramic night vision, thermal optics, and heartbeat sensors. He had swept the dark room, and his digital readouts told him it was perfectly clear.
+Elias didn't answer immediately. Staring at the blood-red ink, his analytical mind slipped backward, dropping him into a memory he usually kept tightly compartmentalized. It was four years ago, during a localized blackout raid in a freezing Chechen warehouse. Elias had been hunting a rogue arms dealer and had relied entirely on millions of dollars of state-of-the-art tech: panoramic night vision, thermal optics, and heartbeat sensors. He had swept the dark room, and his digital readouts told him it was perfectly clear.
 
 
 The tech lied because the target had been wearing a high-end, experimental thermal-dampening suit, rendering him completely invisible to the digital sensors. Elias would have taken a suppressed 9mm bullet to the back of his skull if it hadn’t been for the military working dog at his side. The dog hadn't needed to see the man; it smelled the sudden, sharp spike of cortisol and adrenaline in the air as the shooter raised his weapon, bypassing the camouflage entirely.
@@ -41,7 +45,7 @@ The tech lied because the target had been wearing a high-end, experimental therm
 That was the night Elias learned a fundamental, unbreakable truth: Technology can be hacked, but you cannot spoof biology, and proved true to this day. He winced at the pain that still lingered near his collarbone and ribs from his current predicament. Elias blinked, the memory dissolving back into the sterile light of the Woo lab. He walked over to the heavy steel door and keyed a sequence into the keypad.
 
 
-The pneumatic seals hissed, the door slid open, and a massive, ninety-nine-pound male European Doberman trotted into the room.
+The pneumatic seals hissed, the door slid open and Rolo trotted into the room like he owned the place.
 
 
 Rolo’s coat was a sleek black and tan, completely free of the concrete dust from their previous encounters. The musculature of his broad chest and shoulders coiled tight beneath the skin like thick steel cables. The dog moved with absolute, disciplined lethality, his nails clicking rhythmically against the polished epoxy floor before stopping perfectly at Elias’s heel without a single verbal command, just a single point to the floor.
@@ -56,20 +60,22 @@ Jin’s brow furrowed, his corporate mask slipping into genuine confusion. "I pa
 Elias turned to face the glass partition, his expression dead serious.
 
 
-"When you or I look at her, our brains try to rationalize what we are seeing," Elias explained, slipping into clinical detachment. "If she does something impossible—like absorb the kinetic force of a bullet or speak in dual-frequencies—our logic centers stall out. We wonder if it’s a trick of the light, or an auditory hallucination. At least, mine did." Elias noted with a bitter grumble, rubbing his aching body where she had thrown him into a pallets. "By the time our neural pathways finish processing the terror and accept that she is a monster, the lag time has killed us. She’s already unhinged her jaw and eaten us."
+"When you or I look at her, our brains try to rationalize what we are seeing," Elias explained, slipping into his clinical detachment. "If she does something impossible—like absorb the kinetic force of a bullet or speak in dual-frequencies—our logic centers stall out. We wonder if it’s a trick of the light, or an auditory hallucination. At least, mine did." Elias noted with a bitter grumble, rubbing his aching body where she had thrown him into a pallets. "By the time our neural pathways finish processing the terror and accept that she is a monster, the lag time has killed us. She’s already unhinged her jaw and eaten us."
 
 
 Elias pointed down at the Doberman. "Rolo’s neural pathways don't care about her designer coat, her pretty face, or her corporate authority. The olfactory bulb in a Doberman processes chemical threats instantaneously, completely bypassing higher-level reasoning. He doesn't pause to ask why the woman in the room suddenly smells like a ‘dragon’. If she drops her human temperature, or if her expanding mass emits a non-mammalian pheromone, his autonomic nervous system flags it immediately. He will know exactly what she is before she even moves."
 
 
 "Fascinating," Jin said dryly, crossing his arms, unimpressed by the biology lesson. "But that still doesn't prove your little red sticker holds any actual power."
+
+
 "Watch," Elias said.
 
 
 He took the freshly printed, UV-cured cinnabar seal and stepped toward Rolo. He pressed the adhesive backing directly onto the heavy tactical nylon harness wrapped around the Doberman’s broad chest.
 
 
-Instantly, the dog’s entire behavioral baseline catastrophically shifted. He didn't whimper, and he certainly didn't cower. The Doberman’s hackles raised in a sharp, aggressive, razor-like ridge straight down his spine. His lips curled back, and he let out a low, vibrating, concussive growl that literally rattled the loose steel Allen wrenches on the nearby workbench. His dark eyes locked downward, staring cross-eyed at the red seal stuck to his own chest. His heavy front paws braced against the floor, treating the one-ounce piece of polymer as if a localized, crushing gravitational anomaly had just latched onto his spine.
+Instantly, the dog’s entire behavioral baseline catastrophically shifted. He didn't whimper, and he certainly didn't cower. The Doberman’s hackles raised in a sharp, aggressive, razor-like ridge straight down his spine. His lips curled back, and he let out a low, vibrating, concussive growl that literally rattled the loose steel Allen wrenches on the nearby aluminum workbench. His dark eyes locked downward, staring cross-eyed at the red seal stuck to his own chest. His heavy front paws braced against the floor, treating the one-ounce piece of polymer as if a localized, crushing gravitational anomaly had just latched onto his spine.
 
 
 "Look at him," Elias murmured over the sound of the dog's furious growl. "It’s just a piece of paper. It weighs nothing. But Rolo’s nervous system is detecting the dense, trapped energy of the cured script. Magic isn't a myth, Jin. It has physical, measurable weight. And it is heavy."
@@ -93,6 +99,6 @@ Behind the glass, Jin’s posture fundamentally shifted and he leaned in closer.
 "I have an entire ballistics manufacturing division in Busan," Jin said quietly, his dark eyes locking onto Elias. "It operates off the books. If you can format the extruder to print the ink onto convex surfaces, we can pack these seals into forty-millimeter riot rounds."
 
 
-"That’s my boy!," Elias agreed, a dark, predatory satisfaction settling over his sharp features as he looked down at the dog. "We aren't going to try and slap these on her in a dark alleyway like amateurs. We are going to shoot the cage directly onto her chest."
+"That’s my boy!," Elias agreed enthusiastically; A dark, predatory satisfaction settling over his sharp features as he looked down at the dog. "We aren't going to try and slap these on her in a dark alleyway like amateurs. We are going to shoot the cage directly onto her chest."
 
 ![Chapter 11 Art](chapter-11.foot.jpg)
