@@ -6,13 +6,13 @@ The Woo Telecom Tower was a seventy-story monument to corporate hubris, wrapped 
 Jin sat alone, relatively alone, in the center of the dark executive suite, watching the lobby feed on a bank of battery-powered monitors. He had inherited an empire, and he was prepared to bury himself in it to survive.
 
 
-"We’re not going down without a fight, right, Bunnie?" Jin whispered, his voice fracturing as he finally gave a name to his symbiotic roommate.
+"We’re not going down without a fight, right, Bunnie?" Jin whispered, his voice fracturing as he felt a sad bond with his symbiotic roommate.
 
 
-From the deep shadows of the vaulted ceiling, a massive shape silently detached itself. The Opiliones had grown exponentially since the Hawaiian estate. It was now the size of a full-grown African lion. Its glossy obsidian chitin absorbed the faint, bluish glow of the monitors as its eight impossibly long, thick, red-banded legs navigated down the structural pillars with frictionless grace.
+From the deep shadows of the vaulted ceiling, a massive shape silently detached itself. The Opiliones had grown exponentially since the Hawaiian estate. It was now the size of a full-grown African lion and barely fit in the room if part of its body didn't lurk in the shadows. Its glossy obsidian chitin absorbed the faint, bluish glow of the monitors as its eight impossibly long, thick, red-banded legs navigated down the pillars with frictionless grace.
 
 
-It settled directly onto the polished mahogany desk, looming over Jin. Its central body—a grotesque, terrifying fusion of a severed wolf's snout and sharp, rabbit-like ears—tilted drastically to the side in a posture resembling a curious, endearing puppy. Its false yellow eyes glowed brightly in the dark. It didn't offer protection; it offered a service. As Jin's carefully maintained 65-BPM heart rate finally spiked into genuine, suffocating terror, Bunnie let out a vibrating, clicking purr, happily gorging itself on the massive wave of cortisol flooding the airtight room.
+It settled it's large front body directly onto the polished mahogany desk, looming over Jin. Its central body—a grotesque, terrifying fusion of a severed wolf's snout and sharp, rabbit-like ears—tilted drastically to the side in a posture resembling a curious, endearing puppy. Its false yellow eyes glowed brightly in the dark. It didn't offer protection; it offered a service. As Jin's carefully maintained 65-BPM heart rate finally spiked into genuine, suffocating terror, Bunnie let out a vibrating, clicking purr, happily gorging itself on the massive wave of cortisol flooding the airtight room.
 
 
 Down in the lobby, Elias Thorne slammed his fist against the reinforced steel of the elevator bank. "Jin, you cowardly son of a bitch, open the doors!" Elias barked into his comms.
