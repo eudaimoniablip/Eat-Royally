@@ -1,21 +1,21 @@
 **Chapter 12: Artificial Flavoring**
 ---
-To the mundane, algorithmic world of high finance, Woo Telecom had stabilized perfectly. The stock had rebounded, the aggressive OSHA fines were quietly paid, and the grieving widow, Yeongon, had stepped up as the acting Chairwoman with a ruthless, clinical efficiency that terrified the surviving board members into absolute submission.
+To the mundane, algorithmic world of high finance, Woo Telecom had stabilized perfectly. The stock had rebounded, the aggressive OSHA fines were quietly paid, and the main shareholder, Yeongon had stepped up as the acting Chairwoman with a ruthless, clinical efficiency that terrified the surviving board members and all of its employees into absolute, efficient submission.
 
 
 To Jin Woo, those four months were a suffocating, waking nightmare. For the remaining soulless husks that served on her board, it was an anxiety-ridden purgatory; they all wondered in their subconscious exactly how and when she would end their lives. But Jin knew exactly what she was. He lived in a state of constant, high-functioning paranoia. He stopped sleeping in his own apartment, rotating between high-end hotels under assumed names. He flinched every time the HVAC system in the corporate tower hummed, constantly checking the ambient temperature. He was funneling millions of dollars into Elias Thorne’s ballistic-seal manufacturing facility in Busan, but every single day he walked into the executive suite, he felt the crushing, gravitational weight of the predator sitting comfortably at the top of his food chain.
 
 
-"Mr. Woo. The Chairwoman requested your presence in her office," the executive assistant murmured, her eyes locked nervously on her monitor as Jin stepped off the private elevator.
+"Mr. Woo." She called as he walked by. "The Chairwoman requested your presence in her office," the executive assistant murmured, her eyes locked nervously on her monitor as Jin stepped off the private elevator.
 
 
-Jin’s jaw tightened. "Thank you."
+Jin’s jaw tightened. "Thank you." without breaking his stride.
 
 
-He walked down the silent, heavily carpeted hallway. The heavy acoustic doors to the CEO’s suite were open. Yeongon sat behind the massive slab of polished mahogany that used to belong to his grandfather. The human suit was holding flawlessly. She wore a tailored, charcoal-grey blazer over a high-collared silk blouse, her dark hair pulled back into a severe, architectural knot. She was typing on a holographic terminal, her pale, flawless fingers flying across the keys with an unnatural, blurring speed that no human tendon could sustain.
+He walked down the silent, heavily carpeted hallway. The heavy acoustic doors to the CEO’s suite were open. Yeongon sat behind the massive slab of polished mahogany that used to belong to his grandfather. For Yeongon the human suit was holding flawlessly. Today she wore a tailored, charcoal-grey blazer over a high-collared silk blouse, her dark hair pulled back into a severe, architectural knot. She was typing on a holographic terminal, her pale, flawless fingers flying across the keys with an unnatural, blurring speed that no human tendon could sustain.
 
 
-She didn't look up as Jin entered. "Close the door, Jin." Jin closed the heavy door and silence in the room became absolute, a localized vacuum.
+She didn't look up as Jin entered. "Close the door, Mr. Woo." Jin closed the heavy door and silence in the room became that of an absolute localized vacuum.
 
 
 "The Q3 projections are robust," Yeongon said, her voice smooth and entirely devoid of mammalian inflection. "The liquidation of the Daejung assets following CEO Han's... unfortunate accident... has provided us with immense liquidity."
@@ -27,26 +27,25 @@ She didn't look up as Jin entered. "Close the door, Jin." Jin closed the heavy d
 Yeongon finally stopped typing. She rested her hands on the desk and looked up. Her eyes—dark, bottomless voids that seemed to actively absorb the ambient light from the floor-to-ceiling windows—locked onto his.
 
 
-"I was reviewing the operational expenditures for the quarter," she said smoothly, tapping a single key to bring up a highly classified financial ledger on the monitor between them. "I noticed a significant capital bleed in a subsidiary. Advanced Environmental Acoustics. A facility in Busan."
+"I was reviewing the operational expenditures for the quarter," she said smoothly, tapping a single key to bring up a highly classified financial ledger on the monitor between them, she swung the monitor around for viewing. "I noticed a significant capital bleed in a subsidiary. Advanced Environmental Acoustics. A facility in Busan." She pointed to the exact data on the screen.
 
 
-Jin felt the blood drain entirely from his face. His heart rate spiked, but years of brutal corporate conditioning kept his expression frozen in a mask of polite indifference. "It’s a risk-management initiative, Chairwoman," Jin lied seamlessly. "Following the structural failure in the vault and the police involvement, I authorized R&D into specialized acoustic dampening and environmental hazard containment. To ensure Woo Telecom is never legally liable for a psychological incident of that magnitude again."
+Jin felt the blood drain entirely from his face. His heart rate spiked, but years of brutal corporate conditioning kept his expression frozen in a mask of polite indifference. Glad that Bunnie seemed to not want to have anything to do with Woo Telecom tower or she'd probably drink him dry right now. "It’s a risk-management initiative, Chairwoman," Jin lied seamlessly, so he had thought. "Following the structural failure in the vault and the police involvement, I authorized R&D into specialized acoustic dampening and environmental hazard containment. To ensure Woo Telecom is never legally liable for a psychological incident of that magnitude again."
 
 
-Yeongon stared at him. The silence stretched for five agonizing, suffocating seconds. Then, she smiled. It was the same hollow, terrifying expression she had worn behind the ballistic glass in the vault right before the egos shattered.
+Yeongon stared at him. The silence stretched for five agonizing, suffocating seconds. Then, she smiled jarringly. It was the same hollow, terrifying expression she had worn behind the ballistic glass in the vault right before the egos shattered.
 
 
-"Environmental hazard containment," she repeated softly, tasting the corporate jargon on her tongue. "How ambitious. Tell me, Jin. Does this containment protocol involve forty-millimeter riot rounds and synthetic polymers?"
+"Environmental hazard containment," she repeated softly, tasting the corporate jargon on her tongue while typing it into her report. "How ambitious. Tell me, Mr. Woo. Does this containment protocol involve forty-millimeter riot rounds and untraceable synthetic polymers?"
 
 
 Jin stopped breathing. She knew about Elias, she knew about the ballistic seals. She had obviously been reading the black-budget R&D manifests.
 
 
 "I..." Jin started, his brilliant mind scrambling desperately for a defensive pivot.
-Yeongon raised a single, elegant finger, instantly silencing him.
 
 
-"You don't need to lie to me, Jin. It’s insulting to both of our intellects," she murmured, leaning back in the heavy leather chair. "I absorbed fifty of the most brilliant, corrupt financial minds in Asia. Do you honestly believe you can hide a multi-million-dollar ballistics manufacturing plant in my own ledger?"
+Yeongon raised a single, elegant finger, instantly silencing him. "You don't need to lie to me, Jin. It’s insulting to both of our intellects," she murmured, leaning back in the heavy leather chair. "I absorbed fifty of the most brilliant, corrupt financial minds in Asia. Do you honestly believe you can hide a multi-million-dollar ballistics manufacturing plant in my own ledger?"
 
 
 "Tsk tsk." She reached into the breast pocket of her blazer and pulled out a sleek, titanium pen. She leaned forward, signed her name across a physical paper requisition form, and slid it across the mahogany desk toward him.
