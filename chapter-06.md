@@ -1,9 +1,9 @@
 **Chapter 6: Afterdinner Mint and the Mountain**
 ---
-The penthouse above the Seoul financial district was a monument to absolute minimalism, wrapped in black marble, brushed steel, and floor-to-ceiling glass. It was designed to be a sensory deprivation chamber for the ultra-wealthy—a place of total, expensive silence.
+The Woo penthouse above the Seoul financial district was a monument to absolute minimalism, wrapped in black marble, brushed steel, and floor-to-ceiling glass. It was designed to be a sensory deprivation chamber for the ultra-wealthy—a place of total, expensive silence.
 
 
-Right now, to Yeongon, it was deafening. She stood in the center of the dark living room, her breath coming in shallow, ragged rasps that sounded like a cracked engine manifold, ‘this human suit’ was failing. Consuming Arthur Woo had been a refreshing drink; inhaling fifty apex predators at once was like swallowing an entire dessert cart in one bite.
+But right now, to Yeongon, it was deafening. She stood in the center of the dark living room, her breath coming in shallow, ragged rasps that sounded like a cracked engine manifold, ‘this human suit’ was failing. Consuming Arthur Woo had been a refreshing drink; inhaling fifty apex predators at once was like swallowing an entire dessert cart in one bite.
 
 
 Fifty-one egos were currently screaming inside her head, violently thrashing against the confines of her constructed consciousness. These were not the souls of compliant prey. They were billionaires, fixers, and oligarchs—men and women whose entire neural architecture was built on dominance, arrogance, and control. And now, they were trapped together in the boiling, claustrophobic dark of her celestial digestive tract.
@@ -13,32 +13,16 @@ She could feel the specific textures of their panic. She felt CEO Han’s pathet
 The air in the penthouse warped. The ambient temperature spiked from a cool sixty-eight degrees to over one hundred and ten in a matter of seconds. The condensation on the floor-to-ceiling windows instantly flashed into steam.
 
 
-Yeongon was seeing fractured, overlapping colors—violent bursts of ultraviolet and infrared bleeding into the visible spectrum as her optic nerves short-circuited. The room spun on a tilted axis. She let out a manic, breathless laugh, which abruptly choked into a wet sniffle. She screamed, clutching her chest as a sharp, agonizing pressure built behind her sternum.
+Yeongon was seeing fractured, overlapping colors—violent bursts of ultraviolet and infrared bleeding into the visible spectrum as her optic nerves short-circuited. The room spun on a tilted axis. She let out a manic, breathless laugh, which abruptly choked into a wet sniffle. She screamed, clutching her chest as a sharp, agonizing pressure built behind her sternum. She dropped to her knees, the impact cracking the polished black marble beneath her with the force of a falling anvil. Her midnight-black coat was no longer just a garment; it was a high-pressure containment vessel, and it was reaching its holding limit. The heavy tungsten clasps running down her ribs groaned aloud. It was the terrifying, metallic sound of a submarine's hull stressing under deep-ocean pressure. The metal warped, audibly clicking as the expanding, non-human mass beneath the fabric fought to break free. She convulsed. A sickening, wet crunch echoed through the steaming penthouse as the bones in her shoulders snapped, elongated, and violently reset themselves into a broader, reptilian form. At her collar line, where the top clasp had been undone during the chaos of the vault, her pale human skin was entirely gone.
 
 
-She dropped to her knees, the impact cracking the polished black marble beneath her with the force of a falling anvil. Her midnight-black coat was no longer just a garment; it was a high-pressure containment vessel, and it was reaching its holding limit. The heavy tungsten clasps running down her ribs groaned aloud. It was the terrifying, metallic sound of a submarine's hull stressing under deep-ocean pressure. The metal warped, audibly clicking as the expanding, non-human mass beneath the fabric fought to break free.
+In its place was a dense, interlocking pattern of heavy copper and obsidian scales. They didn't just look like armor; they looked like geologic formations, slick with a thick, iridescent fluid that smelled strongly of ozone and burned copper. The heat radiating off the exposed scales was enough to scorch the collar of her silk blouse into ash. She reached up with trembling, clawed fingers—her fingernails having darkened and sharpened into dense keratin talons—and seized the top clasp. With a guttural, multi-toned snarl, she forced it shut. The lock clicked, biting brutally into the scales, compressing the celestial mass back down into the suffocating shape of a human woman. The pain was blinding, a white-hot spike driving straight through her temples. But she welcomed it, after all the pain meant the integrity of the suit was holding.
 
 
-She convulsed. A sickening, wet crunch echoed through the steaming penthouse as the bones in her shoulders snapped, elongated, and violently reset themselves into a broader, reptilian form. At her collar line, where the top clasp had been undone during the chaos of the vault, her pale human skin was entirely gone.
+_Fifty-one souls down. Forty-nine left._ That thought painted a massive, toothy smile across her face. Her jaw had involuntarily unhinged a fraction of an inch, revealing rows of translucent, needle-like teeth. Copperish, iridescent blood—the byproduct of her internal biological rupture—cascaded down her teeth, spilling over her bottom lip and dripping from her chin onto the ruined marble.
 
 
-In its place was a dense, interlocking pattern of heavy copper and obsidian scales. They didn't just look like armor; they looked like geologic formations, slick with a thick, iridescent fluid that smelled strongly of ozone and burned copper. The heat radiating off the exposed scales was enough to scorch the collar of her silk blouse into ash.
-
-
-She reached up with trembling, clawed fingers—her fingernails having darkened and sharpened into dense keratin talons—and seized the top clasp. With a guttural, multi-toned snarl, she forced it shut. The lock clicked, biting brutally into the scales, compressing the celestial mass back down into the suffocating shape of a human woman.
-The pain was blinding, a white-hot spike driving straight through her cerebral cortex. But she welcomed it. The pain meant the structural integrity of the suit was holding.
-
-
-_Fifty-one souls down. Forty-nine left._
-
-
-That thought painted a massive, toothy smile across her face. Her jaw had involuntarily unhinged a fraction of an inch, revealing rows of translucent, needle-like teeth. Copperish, iridescent blood—the byproduct of her internal biological rupture—cascaded down her teeth, spilling over her bottom lip and dripping from her chin onto the ruined marble.
-
-
-She cackled. The sound was wrong, echoing like a wet willow reed played backward. She imagined the perfectly curated, arrogant faces of the celestial court when she finally breached the heavens. She wouldn't just ascend; she would tear the obsidian pillars down. She would rend their immortal blood to feed the dirt-dwelling humans below, drowning the ultimate 1% in their own extracted capital. She would be vindicated, and she would stop their extractivistic, bureaucratic machine once and for all.
-
-
-Dragging her heavy, mutating limbs across the floor, she crawled toward the glass window. She pressed her burning forehead against the reinforced pane, looking down at the glittering, parasitic grid of Seoul. The beast inside her thrashed, furious at being caged, but Yeongon forced herself to keep that terrifying, blood-stained smile. She was halfway to heaven, but she has never felt so heavy.
+She cackled. The sound was wrong, echoing like a wet willow reed played backwards on an old turntable. She imagined the perfectly curated, arrogant faces of the celestial court when she finally breached the heavens. She wouldn't just ascend; she would tear the obsidian pillars down. She would rend their immortal blood to feed the dirt-dwelling humans below, drowning the ultimate 1% in their own extracted capital. She would be vindicated, and she would stop their extractivistic, bureaucratic machine once and for all. Dragging her heavy, mutating limbs across the floor, she crawled toward the glass window. She pressed her burning forehead against the reinforced pane, looking down at the glittering, parasitic grid of Seoul. The beast inside her thrashed, furious at being caged, but Yeongon forced herself to keep that terrifying, blood-stained smile. She was halfway to heaven, but she has never felt so heavy.
 
 
 At 4:13 AM, the air on Inwangsan Mountain tasted like pine needles, wet granite, and ozone. Elias Thorne did not belong, he was a creature of server rooms, tactical uplinks, and biometric data. He survived by reading the digital exhaust that people left behind, yet, he found himself hiking up the steep, unpaved stone steps winding into the dark peaks above Seoul. His laptop, his spectrum analyzers, and his thermal optics were at the bottom of the mountain, locked in the trunk of his rental car, Rolo as typical, by his side at a perfect heel.
