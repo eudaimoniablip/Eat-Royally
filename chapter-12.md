@@ -48,16 +48,16 @@ Jin stopped breathing. She knew about Elias, she knew about the ballistic seals.
 Yeongon raised a single, elegant finger, instantly silencing him. "You don't need to lie to me, Jin. It’s insulting to both of our intellects," she murmured, leaning back in the heavy leather chair. "I absorbed fifty of the most brilliant, corrupt financial minds in Asia. Do you honestly believe you can hide a multi-million-dollar ballistics manufacturing plant in my own ledger?"
 
 
-"Tsk tsk." She reached into the breast pocket of her blazer and pulled out a sleek, titanium pen. She leaned forward, signed her name across a physical paper requisition form, and slid it across the mahogany desk toward him.
+"Tsk tsk." She reached into the breast pocket of her blazer and pulled out a sleek, titanium pen with one hand while pulling over to her a single piece of polar-white cardstock with the silver embossing for Woo Telecom across the top. She leaned forward, signed her name across the 'grant', and slid it across the mahogany desk toward him.
 
 
 Jin looked down at the paper. It was an executive authorization, approving an additional ten million dollars in funding for his dummy corporation.
 
 
-"I am approving your budget," Yeongon said, her voice dropping into that chilling, liting resonance that bypassed Jin's ears and vibrated directly in the roots of his molars.
+"I am approving your budget," Yeongon said, her voice dropping into that chilling, liting resonance that bypassed Jin's ears and vibrated directly in the roots of his molars. Almost like a snake had flitted it's tongue deep into the cochlea of his ear.
 
 
-Jin stared at the signature, his cognitive functions completely gridlocked. "Why?"
+Jin stared at the signature, his thoughts completely gridlocked. "Why?"
 
 
 "Because a parasite only learns how to survive if you give it an immune response to fight," Yeongon whispered, her eyes flashing with a sudden, iridescent, oil-slick sheen. "Build your cages, Jin. Buy your guns. Paint your little red lines. I want you to feel entirely secure in your containment strategy."
@@ -87,7 +87,7 @@ Elias sat on the couch, running a whetstone methodically down the edge of a heav
 "You need to verify the payload," Jin snapped, pacing the floor. "Take it back to the mountain. If she knows we are printing the seals, I don't trust the math. Something is wrong."
 
 
-Elias agreed and later after Jin had left he packed the latest batch of 3D-printed cinnabar seals into a highly pressurized steel case and drove up to Inwangsan Mountain under the cover of darkness.
+Elias agreed and later after Jin had left back to his random hotel, he packed the latest batch of 3D-printed cinnabar seals into a highly pressurized steel case and drove up to Inwangsan Mountain under the cover of darkness.
 
 
 The Mansin was waiting on the wooden porch of her shrine, smoking her thin, unfiltered cigarette in the cold night air. Elias opened the case, revealing the perfectly printed red geometric Bujeok talismans. The old woman didn't look impressed. She picked one up, closed her milky eyes, and rubbed her thumb over the cured red ink.
@@ -99,10 +99,10 @@ She spat on the ground. "It is dead," the Mansin rasped, tossing the million-dol
 "The lines are flawless," Elias argued, his frustration bleeding through. He pointed to the laser-precise lines. "It’s exact to the micron. And I specifically ordered organic earth compounds for the extrusion feed."
 
 
-"The lines are the cage, American. The ink is the lock, and this ink is not the blood of the earth." The Mansin crushed a piece of the red paste between her fingers, bringing it to her nose. "It is synthetic iron oxide. Machine rust and artificial flavoring. It will not hold the weight of a celestial beast."
+"The lines are the cage, American. The ink is the lock, and this ink is not the blood of the earth." The Mansin crushed a piece of the red paste between her fingers, bringing it to her nose. "It is synthetic iron oxide. Machine rust and artificial flavoring. It will not hold the weight of the beast."
 
 
-Elias’s blood ran cold. He pulled out his encrypted phone and rapidly checked the corporate supply-chain manifests for the Busan lab. He found the discrepancy buried beneath three layers of shell companies. Yeongon hadn't just funded the lab; she had used her authority as CEO to quietly switch the raw materials vendor two weeks ago. She let them build their flawless geometric cages, but she secretly replaced the locks with plastic.
+Elias’s blood ran cold and the corner of his nose twitched as his eyebrows lined the tops of his eyes in sheer rage. He pulled out his encrypted phone and rapidly checked the corporate supply-chain manifests for the Busan lab. He found the discrepancy buried beneath three layers of shell companies. Yeongon hadn't just funded the lab; she had used her authority as CEO to quietly switch the raw materials vendor two weeks ago. She let them build their flawless geometric cages, but she secretly replaced the locks with plastic.
 
 
 "She sabotaged the supply chain," Elias muttered, staring at the screen. "The Jeju gala is in four days. We don't have time to resource raw organic cinnabar, process it for the extruders, and reprint the arsenal."
@@ -139,13 +139,10 @@ Yeongon’s eyes narrowed, a flash of genuine irritation crossing her flawless f
 The Doberman launched forward like a ninety-nine-pound missile, clearing the distance in a single, explosive bound, his powerful jaws snapping wide to lock onto Yeongon’s forearm.
 
 
-The dog’s bite force was over 600 PSI. Yeongon didn't even flinch. She simply twisted her arm, using the dog’s own forward momentum to throw Rolo across the polished marble floor. The Doberman scrambled, his claws clicking frantically as he righted himself instantly, completely uninjured but visibly confused by her unnatural, stone-like density.
+The dog’s bite force was over 600 PSI. Yeongon didn't even flinch, she just twisted her arm, using the dog’s own forward momentum to throw Rolo across the polished marble floor. The Doberman scrambled, his claws clicking frantically as he righted himself instantly, completely uninjured but visibly confused by her unnatural, stone-like density.
 
 
-But Elias used the distraction perfectly to close the gap. He drove forward, slapping one of the 3D-printed synthetic seals directly onto her chest. The synthetic cinnabar flared, glowing a dull, sickly orange.
-
-
-For a fraction of a second, Yeongon was rooted to the spot. Her eyes widened, a flicker of genuine shock crossing her face as the physical mass beneath her skin was violently compressed by the sudden cage.
+But Elias used the distraction perfectly to close the gap. He drove forward, slapping one of the 3D-printed synthetic seals directly onto her chest. The synthetic cinnabar flared, glowing a dull, sickly orange. For a fraction of a second, Yeongon was rooted to the spot. Her eyes widened, a flicker of genuine shock crossing her face as the physical mass beneath her skin was violently compressed by the sudden cage.
 
 
 Then, she laughed. The synthetic iron oxide couldn't hold the weight of fifty-one souls. The polymer talisman shattered, bursting into a cloud of useless, burnt ash.
@@ -166,7 +163,7 @@ But Elias wasn't struggling as he dangled from her grip. He wasn't trying to bre
 A fracture point. He thought. There… right along her spine, the flawless human skin had split under the sudden pressure, revealing a jagged line of interlocking, heavy copper and obsidian scales. 
 
 
-Blistering heat poured off the fissure in visible waves. When she compressed her mass to fight, the human suit couldn't properly ventilate the heat. If she expanded too quickly in an enclosed space, her mobility would drastically drop as the suit failed to regulate the thermodynamic pressure.
+Blistering heat poured off the fissure in visible waves. When she compressed her mass to fight, the human suit couldn't properly ventilate the heat. If she expanded too quickly in an enclosed space, her mobility would drastically drop as the suit failed to regulate the pressure.
 
 
 He didn't need the seal to kill her. He needed to overheat the engine. Rolo lunged again, biting down hard on Yeongon’s calf. With a frustrated sigh, she dropped Elias and kicked the dog away, sending Rolo sliding into the base of a heavy glass coffee table with a thud and a forced small yelp.
