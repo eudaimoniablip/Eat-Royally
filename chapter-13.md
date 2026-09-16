@@ -69,11 +69,15 @@ Yeongon gives a lopsided toothy grin as in enjoying the fight and launches with 
 A group of onlookers, thinking it's part of the show congregate at the windows next to the warped door. A few clings of champagne happens whenever a blow is landed on the man that cannot be harmed. A couple of shrieks when the glass cracks and Bae yells out in fear. 
 
 
-Then with everything she has she drives her claw up through Shin's under chin with and upper cut. Shin looks into her black swirling eyes through the spatial distortions keeping him from being harmed as she lets go of his coat and slides to a stop on her heel. She looks up at Shin with a wicked grin her teeth blue and razor sharp stretching her face eerily, she was certainly taking out some aggression on this golem sent by the courts.
+Then with everything she has she drives her claw up through Shin's under chin with and upper cut. Shin looks into her black swirling eyes through the spatial distortions keeping him from being harmed as she lets go of his coat and slides to a stop on her heel. She looks up at Shin with a wicked grin her teeth blue and razor sharp stretching her face eerily, she was certainly taking out some aggression on this golem sent by Heaven's courts.
 
 
-He lifts the watch and her eyes don't leave the thumb about to hit the switch. With just enough time she launches again and prepares to knock that watch into the glass to 
-He caught the watch as it pinging about the room and eventually landed in his hand. He simply looked at Yeongon and clicked it open. A localized spatial compression directly onto Yeongon. Down below, the physical toll on the her was horrifying. Trapped between Elias’s thermodynamic overload expanding her mass, and Shin’s spatial gravity crushing her inward, Yeongon fell heavily to one knee cracking the floor beneath. Along her spine, the flawless human skin blistered and split open with a sickening, wet crack. A jagged line of heavy, iridescent copper and obsidian scales erupted through the ruined flesh, radiating intense waves of visible heat distortion.
+He lifts the watch and her eyes don't leave the thumb about to hit the switch. With just enough time she launches again and prepares to knock that watch into the glass crack but her back meets one of Elias' grenades fitted with perfect Bujeok.
+
+He caught the watch as it pinging about the room and eventually landed in his hand. He simply looked at Yeongon and clicked it open, the game began. 
+
+
+A localized spatial compression directly onto Yeongon. Down below, the physical toll on the her was horrifying. Trapped between Elias’s thermal changes, well-made Bujeok compressing her heat, and Shin’s spatial gravity crushing her inward, Yeongon fell heavily to one knee cracking the floor beneath. Along her spine, the flawless human skin blistered and split open with a sickening, wet crack. A jagged line of heavy, iridescent copper and obsidian scales erupted through the ruined flesh, radiating intense waves of visible heat distortion. Her body gave in to have her face pressed against the floor looking to Chairman Bae and gave a bloody wicked grin.
 
 
 Chairman Bae, terrified by the suffocating heat and the mutating, bleeding woman on the floor, scrambled backward against the floor-to-ceiling glass. "What... what are you?!" he choked out, his mind fracturing as the dragon began to violently tear its way out of the tailored gown.
@@ -82,16 +86,13 @@ Chairman Bae, terrified by the suffocating heat and the mutating, bleeding woman
 Shin took a single, calm step forward,  through the spatial glitch and instantly crossed twenty feet, appearing directly over Yeongon. He calmly raised a gloved hand to flatten her out of existence, as if just another day and another job.
 
 
-Yeongon looked up, her dark eyes entirely swallowed by an oil-slick black void. She was pinned by the heat and crushed by the gravity, unable to unhinge her jaw or exert the psychological control she needed to extract Bae's soul cleanly.
+Yeongon looked up, her dark eyes entirely swallowed by an oil-slick black void. She was pinned by the heat and crushed by the gravity, unable to unhinge her jaw or exert the psychological control she needed to extract Bae's soul cleanly. But she was an apex predator, and predators adapt. If I cannot survive the environment, she thought, her lightless eyes locking onto the structural foundation of the room, I will collapse it. Still on one knee, Yeongon slammed her pale, bloodied face directly into the floor, spraying her black oily blood into the cracks in the floor. She channeled the violent, expanding kinetic fury of her overheating form away from her body and drove it straight into the architectural load-bearing beams holding the cantilevered pavilion over the ocean.
 
 
-But she was an apex predator, and predators adapt. If I cannot survive the environment, she thought, her lightless eyes locking onto the structural foundation of the room, I will collapse it. Still on one knee, Yeongon slammed her pale, bloodied hand directly into the floor, spraying her black oily blood into the cracks in the floor. She channeled the violent, expanding kinetic fury of her overheating form away from her body and drove it straight into the architectural load-bearing beams holding the cantilevered pavilion over the ocean.
+_CRACK._ Some of the onlookers cheered her raising their glasses and then shrieked as the floor groaned underneath their feet.
 
 
-_CRACK._
-
-
-The acoustic dampening of the room violently inverted. The massive steel I-beams groaned under the impossible celestial weight. The reinforced glass wall behind Chairman Bae didn't just shatter; it exploded outward into the raging storm. The gale-force winds of the Pacific typhoon howled into the 140-degree room, instantly violently crashing against the heat, creating a deafening, sensory-crushing vacuum of steam and rain.
+The acoustic dampening of the room violently inverted. The massive steel I-beams groaned under the impossible celestial weight and the reinforced glass wall behind Chairman Bae didn't just shatter; it exploded outward into the raging storm. The gale-force winds of the Pacific typhoon howled into the 140-degree room, instantly violently crashing against the heat, creating a deafening, sensory-crushing vacuum of steam and rain.
 
 
 Chairman Bae screamed, clutching his ears as the sudden, violent atmospheric pressure drop ruptured both of his eardrums and blood now framed the sides of his neck. The sheer terror of the storm, combined with the crushing, psychic weight radiating from the two gods clashing in front of him, broke his ego instantly. He fell to his knees in the rain-slicked lounge, weeping, his mind collapsing under the weight of the thousands of lives he had locked in dark, suffocating shipping containers.
@@ -100,30 +101,27 @@ Chairman Bae screamed, clutching his ears as the sudden, violent atmospheric pre
 The freezing rain poured over Yeongon, instantly quenching the thermal overload of her suit. Steam aggressively hissed off her exposed scales. She breathed in sharply through her teeth, absorbing the 53rd soul not through a physical bite, but by pulling the fractured energy directly through the chaotic, swirling air of the storm.
 
 
-Shin’s spatial compression wavered as the physical architecture of the room collapsed around him. Up in the server room, Elias watched the monitors in stunned horror. She had been physically compromised, her suit literally melting, yet she had just weaponized the weather and his own architectural trap to finish the job.
+Shin’s spatial compression wavered as the physical architecture of the room collapsed around him and swallowed up the onlookers under blood stained concrete and stabbing twisted rebar. Pearched on the mezzanine, Elias watched the scene in stunned horror. She had been physically compromised, her suit literally melting, yet she had just weaponized the weather and his own architectural trap to finish the job. He pushed back down admiration.
 
 
-Soul consumed, Yeongon stood up. Her gown was ruined, hanging in charred strips. Thick, dark blood—ink-black and viscous—spilled from the fissures in her neck where the scales had pushed through.
+Soul consumed, Yeongon stood up. Her gown was ruined, hanging in charred strips. Thick, dark blood—ink-black and viscous—spilled from the fissures in her neck where the scales had pushed through. She looked up at the ceiling, locking eyes with the hidden camera she knew Jin was watching through. She didn't smile she just stared. 
 
 
-She looked up at the ceiling, locking eyes with the hidden camera she knew Elias was watching through. She didn't smile. She just gave a single, respectful nod to the American contractor who had finally managed to make her bleed.
+Then she looked to the petrified Elias and Rolo up on the dark mezzanine above and gave a single, respectful nod to the American contractor and the Dragon Hunter canine who had finally managed to make her bleed. Then, she turned and stepped backward out of the shattered window, melting seamlessly into the torrential rain and the dark drop to the ocean below, letting the storm hide her flighted escape leaving the last shreds of her dress to flow in the ocean eventually.
 
 
-Then, she turned and stepped backward out of the shattered window, melting seamlessly into the torrential rain and the dark drop to the ocean below, letting the storm hide her escape.
+Shin stood in the ruined, wind-blasted lounge as the dust and vision cleared. He didn't pursue her. He simply clicked his silver pocket watch shut, stepped carefully over the weeping, lobotomized and departed husk of Chairman Bae, and the concrete pit of the rest of the elites that stayed to watch the show. Shin, without expression change walked back out through the warped steel doors.
 
 
-Shin stood in the ruined, wind-blasted lounge as the dust and vision cleared. He didn't pursue her. He simply clicked his silver pocket watch shut, stepped carefully over the weeping, lobotomized husk of Chairman Bae, and walked back out through the warped steel doors.
+Elias let out a long, heavy breath, resting his calloused hand on Rolo’s head to calm the vibrating dog. Target fifty-three was gone and the cleaner was here. Elias picked himself and his things up and went to the monitor. He zoomed in on the security feed, staring at the pool of dark, viscous liquid Yeongon had left behind on the shattered marble. A grim, terrifying satisfaction settled heavily in his chest. He readies his things to get the hell out of here before someone comes asking questions.
 
 
-Elias let out a long, heavy breath, resting his calloused hand on Rolo’s head to calm the vibrating dog. Target fifty-three was gone and the cleaner was here. Elias zoomed in on the security feed, staring at the pool of dark, viscous liquid Yeongon had left behind on the shattered marble. A grim, terrifying satisfaction settled heavily in his chest.
-
-
-She bleeds, Elias realized, his tactical mind rapidly calculating the new data. She has a structural limit. The math works.
+She bleeds, Elias idly thinks as he packs up, his tactical mind rapidly calculating the new data. She has a limit and his tools now work.
 
 
 "Elias," Jin’s voice crackled over the comms, stripped of all its corporate arrogance. "What is our operational status?"
 
 
-"The trap works, Jin," Elias replied, ejecting a 40mm organic cinnabar round from his launcher and catching it in his hand. "But the board just changed. We don't just have a dragon to hunt anymore. We have a celestial cleaner to deal with."
+"The trap works, Jin," Elias replied, ejecting a 40mm organic cinnabar round from his launcher and catching it in his hand. "But the board just changed. We don't just have a dragon to hunt anymore. We have a celestial cleaner to deal with. And I'm getting the hell outta here!"
 
 ![Chapter 13 Art](chapter13-foot.jpg)
