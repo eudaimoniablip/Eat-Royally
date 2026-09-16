@@ -3,7 +3,7 @@
 The Jeju Island Art Pavilion was a masterpiece of organic residential architecture, suspended precariously over jagged volcanic cliffs by a series of heavy, cantilevered steel beams. Inside, the charity gala hummed with the quiet, expensive murmur of the Asian elite. Outside, a torrential Pacific typhoon battered the reinforced floor-to-ceiling glass, threatening to rip the building from the bedrock. But the occupants inside watch with their champagne glasses and their million dollar suits, ties and dresses, tipping the glasses upwards in celebration as the raw fury of the sea is shown to them as if a show coordinated for this occasion.
 
 
-Elias Thorne was perched in the darkened server room directly above the VIP lounge. He wasn't just armed with a tablet wired directly into the Pavilion’s environmental control mainframe. Slung across his chest was a modified, 40mm rotary grenade launcher, loaded with six heavy brass casings packed with the organic, earth-blood cinnabar he had purchased from Bora's shop.
+Elias Thorne was perched in the darkened server room directly above and across from the VIP lounge. He wasn't just armed with a tablet wired directly into the Pavilion’s environmental control mainframe. Slung across his chest was a modified, 40mm rotary grenade launcher, loaded with six heavy brass casings packed with the organic, earth-blood cinnabar he had purchased from Bora's shop.
 
 
 Beside him lay Rolo. The massive European Doberman wore a specialized, matte-black stealth harness. He was completely silent, his dark, intelligent eyes scanning the heavy aluminum air vents.
@@ -24,10 +24,10 @@ Directly above Jin’s monitors, hanging upside down from the ceiling tiles, was
 "I don't have eyes on her, Elias," Jin said smoothly into his headset. "The thermal signatures on the main floor are all reading a standard 98.6 degrees."
 
 
-“Grrrrrrrr.” Elias froze. Rolo hadn't barked, but the dog’s hackles suddenly stood straight up, forming a sharp, rigid ridge of fur straight down his spine. The Doberman’s upper lip curled back, emitting a concussive vibration so low Elias actually felt it hum in his own cracked ribs. Rolo’s wet nose was pointed squarely at the floor grates leading down to the VIP lounge.
+“Grrrrrrrr.” Elias froze. Rolo hadn't barked, but the dog’s hackles suddenly stood straight up, forming a sharp, rigid ridge of fur straight down his spine. The Doberman’s upper lip curled back, emitting a concussive vibration so low Elias actually felt it hum in his own cracked ribs. Rolo’s wet nose was pointed squarely at the floor grates leading down to the VIP lounge. Digital thermals could be spoofed, but the chemical shift of an apex predator dropping its temperature could not hide from a canine’s sensitive olfactory bulb. 
 
 
-The biological radar had tripped. Digital thermals could be spoofed, but the chemical shift of an apex predator dropping its temperature could not hide from a canine’s sensitive olfactory bulb. "She's in the lounge," Elias took three steady box-breaths and said, his heart rate steadying into an icy, analytical calm. His calloused fingers flew across the tablet. "Initiating."
+"She's in the lounge," Elias took three steady box-breaths and said, his heart rate steadying into an icy, analytical calm. His calloused fingers flew across the tablet. "Initiating."
 
 
 Down in the VIP lounge, the heavy acoustic doors slid shut, sealing Chairman Bae inside. A moment later, Yeongon stepped out from the deep shadows of the coat check.
@@ -36,19 +36,16 @@ Down in the VIP lounge, the heavy acoustic doors slid shut, sealing Chairman Bae
 She wore a floor-length, structural gown of absolute black—a color that didn't just lack light, but seemed to actively absorb the ambient glow of the room. The gown was heavily corseted, locked shut across her ribs by thick, industrial tungsten clasps that mirrored her everyday coat.
 
 
-She glided toward Chairman Bae, her pale jaw unhinging just a fraction of an inch to release the psychoacoustic three-note whistle.But before the first note left her lips, Elias hit the override.
+She glided toward Chairman Bae, her pale jaw unhinging just a fraction of an inch to release the three-note business card. Before the first note left her lips, Elias hit the override with a confident grin.
 
 
-He didn't attack her with acoustics or synthetic seals this time. He targeted the infrastructure. He slammed the environmental blast doors shut, hermetically sealing the VIP lounge, and instantly cranked the localized ambient heating coils to maximum industrial capacity.
+He didn't attack her with acoustics or synthetic seals this time. He targeted the environment. He slammed the environmental blast doors shut, hermetically sealing the VIP lounge, and instantly cranked the localized ambient heating coils to maximum industrial capacity. Within ten seconds, the temperature in the lounge violently spiked to 115 degrees Fahrenheit. Within twenty seconds, it hit 130.
 
 
-Within ten seconds, the temperature in the lounge violently spiked to 115 degrees Fahrenheit. Within twenty seconds, it hit 130.
+Down in the lounge, Chairman Bae gasped, frantically loosening his silk tie as the oppressive, suffocating heat hit him like a physical, suffocating wall. "What the fuc-" as he loosens his collar sweat violently beading up on his hairline.
 
 
-Down in the lounge, Chairman Bae gasped, frantically loosening his silk tie as the oppressive, suffocating heat hit him like a physical, suffocating wall. For Yeongon, it was catastrophic.
-
-
-Her human suit relied entirely on ambient cooling to manage the immense, burning celestial energy of fifty-one compressed human souls. As the room became a localized blast furnace, the suit lost its ability to stabilize. Yeongon stopped dead in her tracks. A sharp, shockingly human gasp of pain escaped her pale lips. She staggered backward, her hip hitting the edge of an obsidian coffee table. The heavy tungsten clasps on her gown began to hiss violently, the metal visibly warping and bending outward under the rapidly expanding heat of the celestial mass beneath her skin. She grabbed it to try and help it hold with her hands but her hands just glowed from beneath.
+For Yeongon, it was catastrophic. Her human suit relied entirely on ambient cooling to manage the immense, burning celestial energy of fifty-one compressed human souls. As the room became a localized blast furnace, the suit lost its ability to stabilize. Yeongon stopped dead in her tracks. A sharp, shockingly human gasp of pain escaped her pale lips. She staggered backward, her hip hitting the edge of an obsidian coffee table. The heavy tungsten clasps on her gown began to hiss violently, the metal visibly warping and bending outward under the rapidly expanding heat of the celestial mass beneath her skin. She grabbed it to try and help it hold with her hands but her hands just glowed from beneath.
 
 
 "Her thermal limit is breaking," Elias noted, watching his monitors as the temperature gauge climbed past 140 degrees. "The suit is failing." He reported but before Elias could pick up his 40mm launcher to deliver the organic seal, the security feed abruptly distorted. The heavy, magnetically locked steel doors of the VIP lounge didn't open. They stretched. The steel frame bent inward like pulled taffy, the atomic structure of the door simply folding out of the way.
