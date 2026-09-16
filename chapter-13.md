@@ -60,9 +60,19 @@ Up in Seoul, Bunnie, hanging over Jin’s monitors, let out a sharp, violent his
 Yeongon wasn't going to wait to find out what the man was going to do but she had a sliver of an idea. She launched at Shin letting a hand grow a fierce claw on the end of her hand and launching so quick that her trail was left in the lack of steam before it rolled back into where she occupied the space. She appeared in front of him and jabbed her razor sharp claw through Shin's chest cavity. He looked down his face stone dead with expressions but it was clear that caught him off guard but it didn't hit it's mark as space distorted around the blades with precision, not a single cut got through. 
 
 
-She slide back using the condensation covered marble to gain an arm's length as she recoils. Just as I thought, he can't manipulate space/time in reality without his foci. Only his self without whatever that is in there._ her eyes dart to the pocket he keeps reaching for. He squares his face onto hers and continues to reach into his pocket. She covers the distance at an ambush angle before even Elias who is lining up his launcher.
+She slide back using the condensation covered marble to gain an arm's length as she recoils. Just as I thought, he can't manipulate space/time in reality without his foci. Only his self without whatever that is in there._ her eyes dart to the pocket he keeps reaching for. Shin squares his face onto hers and continues to reach into his pocket. She covers the distance at an ambush angle before anyone blinks and slashes from his back to the front at a downward angle targeting only the coat pocket he reaches into. The pocket-watch 'tinks' onto the ground and begins twirling like a spinning top away from the two, driven by the slick floor. Shin crosses the room quickly and bends to pick up the watch as Elias puts Yeongon in the sights and squeezes the trigger to prime.
 
 
+Yeongon gives a lopsided toothy grin as in enjoying the fight and launches with one step and pulling down into a slide her stilettoed foot aiming at that watch as Shin tries to get to it. She hits it squarely with the tiny pointed heel and it becomes alive beginning to bounce off the walls and Shin watches it closely. She grabs his coat shoulder shoulder to slow her inertia and to dodge the grenade launched at her by Elias perched with Rolo. The grenade hits the glass with a massive impact and a crack is left behind from the explosive earth blood.
+
+
+A group of onlookers, thinking it's part of the show congregate at the windows next to the warped door. A few clings of champagne happens whenever a blow is landed on the man that cannot be harmed. A couple of shrieks when the glass cracks and Bae yells out in fear. 
+
+
+Then with everything she has she drives her claw up through Shin's under chin with and upper cut. Shin looks into her black swirling eyes through the spatial distortions keeping him from being harmed as she lets go of his coat and slides to a stop on her heel. She looks up at Shin with a wicked grin her teeth blue and razor sharp stretching her face eerily, she was certainly taking out some aggression on this golem sent by the courts.
+
+
+He lifts the watch and her eyes don't leave the thumb about to hit the switch. With just enough time she launches again and prepares to knock that watch into the glass to 
 He caught the watch as it pinging about the room and eventually landed in his hand. He simply looked at Yeongon and clicked it open. A localized spatial compression directly onto Yeongon. Down below, the physical toll on the her was horrifying. Trapped between Elias’s thermodynamic overload expanding her mass, and Shin’s spatial gravity crushing her inward, Yeongon fell heavily to one knee cracking the floor beneath. Along her spine, the flawless human skin blistered and split open with a sickening, wet crack. A jagged line of heavy, iridescent copper and obsidian scales erupted through the ruined flesh, radiating intense waves of visible heat distortion.
 
 
