@@ -1,6 +1,6 @@
 !!! Notice: Eat Royally is a dark urban fantasy novel intended for mature audiences. It contains explicit elements and mature themes, including:
 
-Intense Violence & Gore: Graphic depictions of supernatural combat, structural destruction, and visceral creature transformations.
+Intense Violence & Gore: Graphic depictions of supernatural combat, structural destruction, death, violence and visceral creature transformations.
 
 Language: Frequent coarse, vulgar, and aggressive profanity.
 
