@@ -43,22 +43,19 @@ Slowly, the unhinged, terrifying lines of her jaw shifted. The needle-like teeth
 She leaned down, her massive snout inches from Jin’s face. The smell of old earth, and boiling blood washed over him. She inhaled deeply, her nostrils flaring, actively searching the young man's soul for the heavy, arrogant, caloric scent of the Yangban.
 
 
-She found nothing. The ego was entirely gone. "You tell truth," Yeongon whispered. The metallic resonance of her voice carried a strange, ancient melancholy that vibrated in Jin's chest. "You're no longer a viable meal." She said sounding slightly defeated but also a little relief in her growling voice.
+She found nothing. The ego was entirely gone. "You tell truth," Yeongon whispered. The metallic resonance of her voice carried a strange, ancient melancholy that vibrated in Jin's chest. "You're no longer a viable meal." She said sounding slightly defeated but also a little relief in her growling voice. She wanted to say screw the rules and eat them all, fly up and destroy the heavens, but that would make her just like them.
 
 
-She pulled back, raising her massive head toward the vaulted ceiling of the atrium. Without the 100th soul, the ascension was impossible. The celestial mechanics demanded absolute perfection, but the earth had just provided an unresolvable paradox. Deep inside her chest, the ninety-nine corrupt souls she had consumed realized they were permanently trapped. The mass violently, catastrophically expanded.
+She pulled back, raising her massive head toward the vaulted ceiling of the atrium. Without the 100th soul, the ascension was impossible. The celestial mechanics demanded absolute perfection, but the earth had just provided an unresolvable paradox. Deep inside her chest, the ninety-nine corrupt souls she had consumed realized they were permanently trapped. The mass violently, catastrophically expanded into a long snake like dragon.
 
 
 CRACK.
 
 
-The final, lingering remnants of Yeongon's human silhouette shattered entirely. The heavy tungsten clasps of her corset—the last vestiges of her containment—exploded outward like military shrapnel.
+The final, lingering remnants of Yeongon's human silhouette shattered entirely. The last vestiges of her containment—exploded outward like military shrapnel. Elias grabbed the handle of Rolo's harness and violently tackled Jin to the floor just as the shockwave hit, shielding the young man with his carbon-fiber rig.
 
 
-Elias grabbed the handle of Rolo's harness and violently tackled Jin to the floor just as the shockwave hit, shielding the young man with his carbon-fiber rig.
-
-
-Yeongon didn't just grow; she unfolded. Massive, serpentine coils of iridescent black scales erupted into the lobby, crushing the reception desks into powder. Thick, rows of additional horns tore through her skull. She was an Imugi denied its pearl, instantly transforming into a creature of pure, unadulterated mass and wrath.
+Yeongon didn't just grow; she unfolded. Massive, serpentine coils of iridescent black scales erupted into the lobby, crushing the reception desks into powder. Pain and transformation pushes her massive form up through the ceiling and out. Thick, rows of additional scales and thin spikes tore through her current scales, she turns into an Imugi denied its pearl. Transforming into a creature of pure, unadulterated mass and wrath. A long black hole serpent with long flowing whiskers on either side of her lengthened.
 
 
 Shin raised his gloved hand. The spacetime around the cleaner literally screamed, visually tearing into jagged black fissures as he attempted to fold the colossal dragon into the void.
